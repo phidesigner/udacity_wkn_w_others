@@ -1,3 +1,3 @@
 # udacity_wkn_w_others
 
-This is awesome
+Ok here we go with smtg new!
